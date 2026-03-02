@@ -10,7 +10,7 @@ Save big with exclusive discount codes, free gifts, and free shipping offers.
 ## 🔥 Active Temu Coupon Codes
 
 | #  | Coupon Codes | Offer Details | Link |
-|----|-------------|------------|---------------|------|
+|----|--------------|---------------|------|
 | 1 | acy207678 |  40% Off Sitewide $29+ Orders + Free Shipping + Free Return | https://temu.to/k/pa34om76o91 |
 | 2 | acx201580 |  40% Off + Free Gifts + Free Shipping & Return | https://temu.to/k/pa34om76o91 |
 | 3 | acy319170 |  $100 Off Storewide + Extra 40% Off + Free Shipping Bundle | https://temu.to/k/pye6x2j7st6 |
